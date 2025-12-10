@@ -1,4 +1,6 @@
 # Qubic-Quorum-Proposal-Ecosystem-Soapbox
+# IN DRAFT - RESEARCH: DOES THIS HARM THE ECOSYSTEM?
+# PROPOSAL NOT LIVE
 
 **Written by:** Misfitcompany  
 
